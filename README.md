@@ -204,7 +204,7 @@ Learning Models: A Comparative Approach. Master's Thesis, MSc Financial Engineer
 
 **Kaviya Gopal**
 MSc Financial Engineering & Management — KIT
-[LinkedIn](https://linkedin.com/in/kaviyagopal) · [Email](mailto:kaviya.gopal@email.com)
+[LinkedIn]([https://www.linkedin.com/in/kaviya-gopal-a9a6361a0/]) 
 
 ---
 
